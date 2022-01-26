@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @therese-broomfield - Artist. Designer. Costume Creator. Writer. Gamer. Nerd. INFP, Master of Naps. Fan of Many Things. Mom.
+- 👀 I’m interested in Graphic Design, Digital Illustration, and Costume Design+Creation.
+- 💞️ I’m looking to collaborate on artistic endeavors.
+- 📫 How to reach me - therese.ilene@gmail.com
